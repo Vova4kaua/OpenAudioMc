@@ -1,1 +1,0 @@
-Our privacy policy and terms of service are available at https://account.openaudiomc.net/terms
